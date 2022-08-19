@@ -1,0 +1,1 @@
+Absolutely LOVED it! The coffee was great, as was the atmosphere and the staff. The artwork and scenery were beautiful! I'm telling everyone I know! I will definitely frequent Taste and See Coffee Shop & Gallery!!
